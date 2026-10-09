@@ -1,1 +1,1 @@
-# Market-Rush-Insight
+# Rush Social
